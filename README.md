@@ -1,2 +1,2 @@
 # camelottt
-# Sid Porwell & PJ
+# Sid & PJ
